@@ -31,12 +31,7 @@ I am a **UX/UI Designer** and **CMS Developer** passionate about creating intuit
 ## 📂 Portfolio
 Check out my latest work:
 - [Behance](https://www.behance.net/yuliiaholub_design)
-- [Dribbble](https://dribbble.com/)
-
----
-
-## 📫 Let's Connect
-- LinkedIn: [Yuliia Holub](https://www.linkedin.com/in/yuliia-holub)
+- [Dribbble](https://dribbble.com/yuliia_holub)
 
 ---
 
